@@ -13,3 +13,4 @@
 - 🔫 Cuz I'm always strapped
 - ⚡ Fun fact:
     - 😎 I'm a gamer
+![Duck Pic](ducks.jpg)
