@@ -4,9 +4,9 @@
 ...yes, you heard that right. I'm special. thanks ~~Microsoft~~ GitHub.
 
 
+- 🇺🇸 #America4Eva
 - 🇮🇱 Victory for Israel
 - 🇺🇦 Ukraine Victory
-- 🇺🇸 #America4Eva
 - 🐈 Tab Supremacy
 - 😬 OTBS is king
 - 📫 Please don't reach for me
